@@ -1,0 +1,1 @@
+# SamsungA71
